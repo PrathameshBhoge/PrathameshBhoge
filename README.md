@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **prathameshbhoge.cool@gmail.com**
 
-- ⚡ Fun fact **Lorya is my favorite shivi nahi tr bhokat jay**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
